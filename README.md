@@ -1,3 +1,2 @@
-Check out my address in Scopescan: 
+Check out my address in Scopescan:  jamcfly.eth
 --->
-https://scopescan.ai/
